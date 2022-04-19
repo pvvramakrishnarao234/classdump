@@ -1,3 +1,3 @@
 # classdump
 
-my class shit need not go through this :)
+THIS IS MY CLASS WORK DON'T GO THROUGH THIS
